@@ -73,13 +73,13 @@ _Since you don't want to leave my profile just yet! Here are a few things you ca
 
 ❤️ Support me : (Give me your money 💰) So that I can upgrade my slow Desktop 🥺😌... [![Donate](https://img.shields.io/badge/$$-Support-green.svg?style=flat)](https://paypal.me/GravesX89)
 
-❤️ Offer work : Send the details on [![Linkedin Badge](https://img.shields.io/badge/-Aman_Ansari-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/aman-atg/)](https://www.linkedin.com/in/aman-atg/)
-or [![Gmail Badge](https://img.shields.io/badge/-aman.atg001@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:aman.atg001@gmail.com)](mailto:aman.atg001@gmail.com)
+❤️ Offer work : Send the details on [![Linkedin Badge](https://img.shields.io/badge/-Nick_Graves-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/nickgraves17/)](https://www.linkedin.com/in/nickgraves17/)
+or [![Gmail Badge](https://img.shields.io/badge/-nrkg89@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:nrkg89@gmail.com)](mailto:nrkg89@gmail.com)
 
-❤️ Follow me : on [![GitHub followers](https://img.shields.io/github/followers/aman-atg?label=Follow&style=social)](https://github.com/aman-atg/?tab=follow) and [![Twitter Badge](https://img.shields.io/badge/-@aman_atg-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=twitter&logoColor=white&link=https://twitter.com/aman_atg)](https://twitter.com/aman_atg)
+❤️ Follow me : on [![GitHub followers](https://img.shields.io/github/followers/Thekid303?label=Follow&style=social)](https://github.com/Thekid303/?tab=follow) and [![Twitter Badge](https://img.shields.io/badge/-@nrkg89-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=twitter&logoColor=white&link=https://twitter.com/nrkg89)](https://twitter.com/nrkg89)
 and be a part of my journey... and See if I can make it or not!
 
-❤️ Connect with me : [![Linkedin Badge](https://img.shields.io/badge/-Aman_Ansari-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/aman-atg/)](https://www.linkedin.com/in/aman-atg/)
+❤️ Connect with me : [![Linkedin Badge](https://img.shields.io/badge/-Nick_Graves-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/nickgraves17/)](https://www.linkedin.com/in/nickgraves17/)
 
 <hr/>
 
